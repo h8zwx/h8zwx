@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @h8zwx
+- 📫 How to reach me ... on discord h8zw
+- ⚡ Fun fact: ... i leak stuff
